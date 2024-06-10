@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning analysis and systems development
 - 💞️ I’m looking to collaborate on anything that makes me learn more
 - 📫 How to reach me? @danilof.dias my Instagram
-- 😄 Pronouns: ...
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: If curiosity killed the cat, then it discovered how to have seven lives before it died. And I'm a cat squared
 
 <!---
